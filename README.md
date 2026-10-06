@@ -1,0 +1,2 @@
+# Aby
+Moja praca magisterska
